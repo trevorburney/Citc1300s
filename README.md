@@ -1,1 +1,1 @@
-# CITC 1300 Project Page (sorry for it being late)
+# CITC 1300 Project Page (1st 7 Weeks Class)
